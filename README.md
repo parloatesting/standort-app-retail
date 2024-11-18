@@ -1,0 +1,1 @@
+# standort-app-retail
